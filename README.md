@@ -1,5 +1,5 @@
 - Hello World! I'm @ligabeth. How did you find me here?
-- I’m interested in robotics, art, space and physics, music, and theater
+- I’m interested in robotics, engineering, art, space and physics, music, and newspaper
 - I’m currently learning... a lot. I'm in high school, and I have quite a full schedule!
 - I’m looking to collaborate on whatever comes up in future prohjects!
 - How to reach me: don't please
